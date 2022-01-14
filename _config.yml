@@ -44,7 +44,7 @@ social:
   links:
     # The first element serves as the copyright owner's link
     - https://github.com/Porush264       # change to your github homepage
-#    - https://twitter.com/username      # change to your twitter homepage
+    # - https://twitter.com/username      # change to your twitter homepage
     # Uncomment below to add more social links
     # - https://www.facebook.com/username
     # - https://www.linkedin.com/in/username
@@ -82,7 +82,7 @@ theme_mode:   # [light|dark]
 img_cdn:
 
 # the avatar on sidebar, support local or CORS resources
-avatar: https://avatars.githubusercontent.com/u/75961414?v=4
+avatar: https://imgur.com/a/hV4lbos
 
 # boolean type, the global switch for ToC in posts.
 toc: true
