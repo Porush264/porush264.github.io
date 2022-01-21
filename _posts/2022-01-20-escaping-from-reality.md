@@ -1,6 +1,6 @@
 ---
 title: Escaping From Reality
-date: 2022-01-20T16:13:18.521Z
+date: 2022-01-21T14:44:25.555Z
 categories:
   - Literature
   - Story
@@ -19,4 +19,4 @@ He was on a hill , surrounded by green ,beautiful hills around him as far as he 
 "Yep ,you know, you really should have done a podcast or something when you were alive because you seem to be giving me all your philosophy whether or not I want to hear it", said Mark\
 "Seems like you do want to hear it ,otherwise I wouldn't be here ",said his grandpa\
 "All right , that's a new record of you boring me, I'm off ",said Mark, standing up to go away as he knew what his grandpa was gonna say and didn't want to hear it \
-"Run away from me ,but you can't run from the reality
+"Run away from me ,but you can't run from the reality, you have to accept this fact and must make your peace with it.
