@@ -22,10 +22,21 @@ He was on a hill , surrounded by green ,beautiful hills around him as far as he 
 "Run away from me ,but you can't run from the reality, you have to accept this fact and must make your peace with it. Decide when you want to do that in your own time", said his grandpa, finally standing up on the hill.\
 "Maybe never", said Mark in finality.\
 And as these words settled their place ,the dream started to fade away along with his grandpa, but not into nothingness, into something else.\
-he had been here ,Andy's party in which he didn't want to go, but had gone anyway hoping he would get a proper chance to talk to Maeve.\
+he had been here ,Andy's party in which he didn't want to go, but had gone anyway just because it would mean spending more time with Maeve.\
 Mark looked around, and found someone who was not supposed to be there\
 "What are you thinking, Mark?", asked Maeve\
 "Well, for starters, you didn't stay on the roof with me in actuality, I was alone here", said Mark\
 "I went inside to party with my friends ,but this is your dream so I guess I'll do what you imagine me to", said Maeve\
 I don't know why I'm here ,dreaming this memory", said Mark, abruptly changing the topic.\
-"Maybe it's a strong one, you just didn't know it yet", said Maeve
+"Maybe it's a strong one, you just didn't know it yet", said Maeve\
+Now looking down the roof ,"tell you what, I think I might have the answer that is if you are willing to jump for it", said Maeve\
+Mark had no problem with that ,after all why would he have a problem doing it in a dream, he certainly wouldn't even now mind doing it in reality. Mark took the hand which Maeve had extended, and together they jumped. As he went down, he felt himself getting lighter and lighter but the scene was changing again and when he landed he saw the hill was back. This was utterly fascinating as he had never seen the hill before in his life.\
+"Wonderful place ,isn't it?", said Maeve\
+"Why are you here?", said Mark\
+"Of course ,to talk about your parents", said Maeve\
+"And you know I don't wanna hear anything, then why even try?", said Mark, getting impatient now\
+"Life is still worth living Mark, at least give it one more chance", said Maeve\
+"I don't feel like living anymore", said Mark \
+"Then, I'm afraid I have to say goodbye and let you continue to see for yourself", said Maeve\
+"See what?", asked Mark, completely confused\
+Almost suddenly, the hills started to crack from middle almost as if they were part of a big animated movie and before he saw it, the land on which Mark stood, split itself into two, leading Mark into the unknown.
