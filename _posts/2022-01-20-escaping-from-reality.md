@@ -30,7 +30,7 @@ Mark looked around, and found someone who was not supposed to be there\
 I don't know why I'm here ,dreaming this memory", said Mark, abruptly changing the topic.\
 "Maybe it's a strong one, you just didn't know it yet", said Maeve\
 Now looking down the roof ,"tell you what, I think I might have the answer that is if you are willing to jump for it", said Maeve\
-Mark had no problem with that ,after all why would he have a problem doing it in a dream, he certainly wouldn't even now mind doing it in reality. Mark took the hand which Maeve had extended, and together they jumped. As he went down, he felt himself getting lighter and lighter but the scene was changing again and when he landed he saw the hill was back. This was utterly fascinating as he had never seen the hill before in his life.\
+Mark had no problem with that ,after all why would he have a problem doing it in a dream, he certainly wouldn't even mind doing it in reality now. Mark took the hand which Maeve had extended, and together they jumped. As he went down, he felt himself getting lighter and lighter but the scene was changing again and when he landed he saw the hill was back. This was utterly fascinating as he had never seen the hill before in his life.\
 "Wonderful place ,isn't it?", said Maeve\
 "Why are you here?", said Mark\
 "Of course ,to talk about your parents", said Maeve\
