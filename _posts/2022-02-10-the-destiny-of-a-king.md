@@ -22,5 +22,6 @@ She wanted the life of a writer\
 And he wanted something to be as simple as a farmer\
 And when they met , they both became much lighter\
 When both came to know\
-that each of them were \
-and a sweet place they could truly call home
+that each of them were looking for something mundane\
+But lacked courage and company of someone known\
+and a place they could truly call a home
