@@ -1,6 +1,6 @@
 ---
 title: The Destiny of a King
-date: 2022-02-10T11:03:19.240Z
+date: 2022-02-10T14:45:19.763Z
 categories:
   - Literature
   - Poem
