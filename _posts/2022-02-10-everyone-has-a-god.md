@@ -32,5 +32,5 @@ Which makes people stop questioning and live a life of fool\
 They build their temples to promote their system\
 And make a false history to fit a senseless conclusion\
 What they forget to bring is a voice of reason\
-They tend to destroy peace and enforce a life of commotion\
+And tend to destroy peace and enforce a life of commotion\
 in order to find a purpose and a life of emotion
