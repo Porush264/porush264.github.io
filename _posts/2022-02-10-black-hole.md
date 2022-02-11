@@ -6,7 +6,7 @@ categories:
   - Poem
 tags:
   - Fiction
-  - Science
+  - Cosmos
   - Rhyming
 ---
 A mystery yet left to be completely understood\
