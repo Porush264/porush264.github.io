@@ -7,6 +7,10 @@ categories:
 tags:
   - Imagine
   - Rhyming
+  - self-journey
+author:
+  name: Porush Yadav
+  link: github.com/Porush264
 ---
 A king born with destiny of gold\
 Had only eyes for the unappealing coal\
@@ -23,5 +27,16 @@ And he wanted something to be as simple as a farmer\
 And when they met , they both became much lighter\
 When both came to know\
 that each of them were looking for something mundane\
-But lacked courage and company of someone known\
-and a place they could truly call a home
+But lacked company of someone they could never hate\
+and a place where together they could fly away
+
+And so it seemed it was bound to be a happy ending\
+Until came the dreaded storm of illness and fate\
+Which took away the woman along with his purpose of living\
+Alone again he never understood what was to be made\
+Of this life which he did not feel he belonged in 
+
+He returned to his kingdom in order to fill the void \
+With life of fortune which he never could vacate\
+And he freed the people of his kingdom from their ongoing turmoil\
+As he fit the role which he was always destined to take
