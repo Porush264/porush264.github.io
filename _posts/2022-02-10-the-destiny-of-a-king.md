@@ -8,9 +8,6 @@ tags:
   - Imagine
   - Rhyming
   - self-journey
-author:
-  name: Porush Yadav
-  link: github.com/Porush264
 ---
 A king born with a destiny of gold\
 Had only eyes for the unappealing coal\
