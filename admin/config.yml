@@ -19,11 +19,10 @@ collections:
       - { label: "Publish Date", name: "date", widget: "datetime" }
       - { label: "Categories", name: "categories", widget: "list" }
       - { label: "Tags", name: "tags", widget: "list" }
-      label: "Profile"
-      name: "profile"
-      widget: "object"
-      summary: '{{fields.name}}: {{fields.birthdate}}'
-      fields:
+      - label: "Profile"
+        name: "profile"
+        widget: "object"
+        fields:
         - { label: "Name", name: "name", widget: "string", default: "Porush Yadav" }
         - { label: "Link", name: "name", widget: "string", default: "https://github.com/porush264" }
       - { label: "Body", name: "body", widget: "markdown" }
