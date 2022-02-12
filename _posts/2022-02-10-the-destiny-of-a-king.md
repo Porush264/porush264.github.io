@@ -34,7 +34,7 @@ And so it seemed it was bound to be a happy ending\
 Until came the dreaded storm of illness and fate\
 Which took away the woman along with his purpose of living\
 Alone again he never understood what was to be made\
-Of this life which he did not feel he belonged in 
+Of this life which now seemed to him never-ending
 
 He returned to his kingdom in order to fill the void \
 With life of fortune which he never could vacate\
