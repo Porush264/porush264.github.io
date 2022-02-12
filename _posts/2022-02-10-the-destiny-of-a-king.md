@@ -1,6 +1,6 @@
 ---
 title: The Destiny of a King
-date: 2022-02-12T09:21:32.048Z
+date: 2022-02-12T13:15:14.012Z
 categories:
   - Literature
   - Poem
@@ -8,8 +8,11 @@ tags:
   - Imagine
   - Rhyming
   - self-journey
+author:
+  name: Porush Yadav
+  link: github.com/Porush264
 ---
-A king born with destiny of gold\
+A king born with a destiny of gold\
 Had only eyes for the unappealing coal\
 But nobody cared which he wanted more\
 As he was thrown in with the aristocrats when born
