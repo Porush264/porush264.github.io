@@ -8,6 +8,9 @@ tags:
   - Fiction
   - Cosmos
   - Rhyming
+author:
+  name: Porush Yadav
+  link: www.github.com/Porush264
 ---
 A mystery yet left to be completely understood\
 But could be made by shrinking a body to vacuum\
