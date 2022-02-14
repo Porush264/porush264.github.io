@@ -7,6 +7,9 @@ categories:
 tags:
   - Ballad
   - nostalgia
+author:
+  name: Porush Yadav
+  link: https://github.com/Porush264
 ---
 There once was a man named McLord \
 And nobody was present in his town who wasn't known\
@@ -36,7 +39,7 @@ Standing on the docks at nights alone\
 He tried to remember the place he once called home\
 Which filled him with emotions and tears of his own\
 As the new land was nothing compared to the old\
-place which gave him a feeling that he belonged \
+Which gave him a feeling that he belonged \
 somewhere ,on this lonely dot globe\
 And one thing always remained the same wherever he went \
 He was always surrounded by people who liked him most
