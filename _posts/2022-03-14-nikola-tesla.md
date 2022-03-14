@@ -3,8 +3,9 @@ title: Nikola Tesla
 date: 2022-03-14T09:20:23.553Z
 categories:
   - Art
-  - Scientist
+  - Portrait
 tags:
+  - Scientist
   - Inspiration
 author:
   name: Porush Yadav
