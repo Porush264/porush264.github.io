@@ -3,6 +3,7 @@ title: Albert Einstein
 date: 2022-03-14T09:07:59.055Z
 categories:
   - Art
+  - Scientist
 tags:
   - Inspiration
 author:
