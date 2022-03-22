@@ -18,6 +18,7 @@ In these games of politics which wrecks the brain
 
 They say one thing and act on another \
 Until they are left with a life of confusion and disorder\
+Just to satisfy their pride and egoistic notions\
 And their mind does not have time to aimlessly wander\
-Wander in the deep sea of unknown \
-Just only to satisfy their egoistic notion
+Wander in the deep sea of unknown and question\
+Everything that surrounds in its pristine nature
