@@ -21,10 +21,10 @@ A soldier peeks inside the carriage ,"we're almost there messenger ",says the so
 After walking on the rocky and steep path for sometime , the soldier approaches for a conversation with the unknown messenger.\
 "So messenger, you must have a name ?",asks the soldier \
 "Hurayat Markun or you might have heard of someone named "Hoshakh" and you can now say to them that you had the pleasure of meeting him"\
-The soldier turns to look at Hoshakh , he could not believe that it was him ,but after a while he approaches ," i had heard they were sending someone important ,never imagined that this matter had gone to be this important, it is my great honor to be of service to an individual of your great stature, may I be forgiven for my earlier behaviour?",says the soldier\
+The soldier turns to look at Hoshakh , he could not believe that it was him ,but after a while he approaches ," I had heard they were sending someone important ,never imagined that this matter had gone to be this important, it is my great honor to be of service to an individual of your great stature, may I be forgiven for my earlier behaviour?",says the soldier\
 "Do not worry about it , not so long ago people often addressed me with far worse ,what shall I call you ?",said Hoshakh\
-"Amad and this way ,that one lead to the gardens",says Amad\
-I'd love to see them ,when all these disputes are settled down and the relations between the two kingdoms are restored again. Hoshakh looked hopefully towards Amad who did not look so sure about this.  \
+"Amad and this way ,that one lead to the gardens ",says Amad\
+I'd love to see the famous gardens of Mahqur ,when all these disputes are settled down and the relations between the two kingdoms are restored again. Hoshakh looked hopefully towards Amad who did not look so sure about this.  \
 "So , you must be already prepared for it ,yes?",said soldier changing topic abruptly\
 "I am, but still quite nervous ",says Hoshakh\
 "Well, you shouldn't be ,our king will understand if your argument is good ",says Amad\
@@ -40,11 +40,12 @@ The alley was narrow and clean and on both sides there were big doors surroundin
 "Thank you ,I promise to try my best",says Hoshakh ,and with that said Amad's work was done and it was up to the big people to decide whether there will be a war or not .
 
 Hoshakh walks ahead on the dark path , he was scared for his life ,out in an unknown enemy land ,but he was not scared for his life because he cared about his mortal life , but feared the consequences his death would bring .The lights started waking up as he walked more and more and there he saw everyone ,including King Tajot with his most precious council of 7.All eyes were fixed on him with side chatter that could be heard vaguely. As he reached the table in middle of the room, everybody stood to greet him \
-"Welcome , the wise Hoshakh ",the kind spoke," I trust our soldiers took care of your travels properly ,though I sincerely apologize for the secrecy of the journey , you must understand it is a neccessary precaution , all the more now .\
+"Welcome , the wise Hoshakh ",the kind spoke," I trust our soldiers took care of your travels properly ,though I sincerely apologize for the secrecy of the journey , you must understand it is a necessary precaution , all the more now .\
 "Yes , there was no problem in the journey and I do understand the neccessity of the measures taken for security  . I must insist now we get to the matter at hand ,which is the peace offering brought by me from the great King Austerius " \
 "Yes please , I do understand that your King is generous ,logical and kind man who has used his senses to refute this kind of monstrosity of a war ".\
 Hoshakh takes out a piece of royal parhcment and starts reading aloud : "In accordance to the peace offering,made by King Austerius , in order to avoid the upcoming battle of Cordane ,recited by Hurayat Markun here at the court of King Tajot . \
 `I wish to offer the land of west cerok,upxton and a 1000 tarq to the great king of Mahqur and the 1000 tarq each to their neighboring allied kingdoms.I sincerely hope that the king understands the severity of this war and settles for this deal in order to bring forth peace in every kingdoms presiding .`\
 `Your sincerely `\
 `King of Orkhan`\
-`Austerius`
+`Austerius`\
+The king looks at his other council members with a face of satisfaction ,and speaks adressing
