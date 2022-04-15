@@ -47,13 +47,15 @@ Hoshakh takes out a piece of royal parhcment and starts reading aloud : "In acco
 `I wish to offer the land of west cerok,upxton and a 1000 tarq to the great king of Mahqur and the 1000 tarq each to their neighboring allied kingdoms.I sincerely hope that the king understands the severity of this war and settles for this deal in order to bring forth peace in every kingdoms presiding .`\
 `Your sincerely`\
 `King of Orkhan`\
-`Austerius`\
+`Austerius David`\
 The king looks at his other council members with a face of satisfaction ,and speaks addressing Hoshakh ,"That seems like a fair agreement , your king is quite generous when it comes to avoid wars."\
 "Thank you King Tajot ,so should I conclude that this meeting was a complete success after all "\
 "Yes , and my soldiers will take care of your every need from here , if you wish to visit someplace in Mahqur , you are most welcome ."\
 I've heard quite a lot of positive things about the famous Mahqur gardens"\
 "Oh yes , our gardens are a sight to anyone's eyes, i will notify someone to collect you from here to take you to the gardens.", and with that the king and the council of 7 starts to leave from the court , leaving Hoshakh thinking he was worrying about the meeting for nothing ,it went even more comfortably than thought out.
 
-"Well it seems fitting that i must be the one who takes you to the gardens ",says Amad ,who had just appeared in the court to recieve Hoshakh from one of the gates of the court. He had found Hoshakh sleeping on one of the council members seats .\
+"Well it seems fitting that I must be the one who takes you to the gardens ",says Amad ,who had just appeared in the court to recieve Hoshakh from one of the gates of the court. He had found Hoshakh sleeping on one of the council members seats .\
 "I apologize , I was quite tired from my travels and decided to make myself comfortable " ,says Hoshakh \
-You must be the nicest official I have ever met ,talking to me like this "
+You must be the nicest official I have ever met ,talking to me like this , come with me please , I know a way which is closer to the gardens from here.",said Amad\
+They both make way for the gate on the extreme left and as they step out they are greeted by grounds of sands with roughly carved pathways going either left or right ,with Amad leading Hoshakh towards the left one.\
+"Does every door in the room leads to different places
