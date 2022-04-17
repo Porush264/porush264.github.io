@@ -48,14 +48,25 @@ Hoshakh takes out a piece of royal parhcment and starts reading aloud : "In acco
 `Your sincerely`\
 `King of Orkhan`\
 `Austerius David`\
-The king looks at his other council members with a face of satisfaction ,and speaks addressing Hoshakh ,"That seems like a fair agreement , your king is quite generous when it comes to avoid wars."\
+The king looks at his other council members with a face of satisfaction ,and speaks addressing Hoshakh ,"That seems like a fair agreement , your king is quite generous when it comes to avoiding wars."\
 "Thank you King Tajot ,so should I conclude that this meeting was a complete success after all "\
 "Yes , and my soldiers will take care of your every need from here , if you wish to visit someplace in Mahqur , you are most welcome ."\
 I've heard quite a lot of positive things about the famous Mahqur gardens"\
-"Oh yes , our gardens are a sight to anyone's eyes, i will notify someone to collect you from here to take you to the gardens.", and with that the king and the council of 7 starts to leave from the court , leaving Hoshakh thinking he was worrying about the meeting for nothing ,it went even more comfortably than thought out.
+"Oh yes , our gardens are a sight to anyone's eyes, I will notify someone to collect you from here to take you to the gardens.", and with that the king and the council of 7 starts to leave from the court , leaving Hoshakh thinking he was worrying about the meeting for nothing ,it went even more comfortably than thought out.
 
 "Well it seems fitting that I must be the one who takes you to the gardens ",says Amad ,who had just appeared in the court to recieve Hoshakh from one of the gates of the court. He had found Hoshakh sleeping on one of the council members seats .\
 "I apologize , I was quite tired from my travels and decided to make myself comfortable " ,says Hoshakh \
-You must be the nicest official I have ever met ,talking to me like this , come with me please , I know a way which is closer to the gardens from here.",said Amad\
+You must be the nicest official I have ever met ,talking to me like this , come with me please , I know a way which is closer to the gardens from here." ,said Amad\
 They both make way for the gate on the extreme left and as they step out they are greeted by grounds of sands with roughly carved pathways going either left or right ,with Amad leading Hoshakh towards the left one.\
-"Does every door in the room leads to different places
+"Does every door in the room leads to different places in the city ", Hoshakh asks curiously .\
+"Some lead to the same place but different gates for different entrances ,but the main point about it is that the gates cover any important place there in the city, the one which was on your north and locked led to the weaponry , the one through which the king and his council must have left from would lead to the main hall of the palaceNow you must watch your steps here ,the path gets quite steeper suddenly."\
+"How long are the gardens from here ?", says Hoshakh ,seeing ground of sands all around him with no sight of a garden.\
+"Oh ,not so far but they take time to reach all the same from here, so if you do not mind sharing the decision of the king and his council." ,says Amad\
+"An unofficial agreement has been reached , when I will relay this message the king will send the parchment in order for the signature of your King Tajot ",says Hoshakh \
+" I see ,that sounds like really good news ,I am sure my friends will be happy to hear they they do not have to prepare themselves for another war."\
+It was good news ,but something about it seemed off ,like this was all too easy ,like there should have been more difficulties faced by him in this task ,surely avoiding a war could not have been this easy , and that was when he realized that he was not going to visit any gardens ,he has been a fool to let himself fall prey so easily ,but this realization seemed too late to come to him as he sees in front of him a pair of soldiers like Amad carrying their deadly blades and gets hit by someone on the head from behind which leaves him unconscious. 
+
+His hands and legs were tied and the hot sun was staring down at his head with its great extremity. He opens his eyes with difficulty due to the sun and sees Amad standing in front of him with a gun .\
+"Before I kill you , I would just like to say sorry for the cost of this war which is your head"\
+"Just get on with it already Amad ",says one of the soldiers from behind\
+Amad takes a good look on Hoshakh who was no longer feeling the sun in his eyes, had accepted his end and was ready to die proudly , knowing at the same time that his death was about to start a war which could leave everyone in this world with unforgettable turmoil.
