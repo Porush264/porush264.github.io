@@ -6,7 +6,6 @@ categories:
   - Story
 tags:
   - Fiction
-  - ShortStory
 author:
   name: Porush Yadav
   link: https://github.com/porush264
@@ -67,6 +66,7 @@ They both make way for the gate on the extreme left and as they step out they ar
 It was good news ,but something about it seemed off ,like this was all too easy ,like there should have been more difficulties faced by him in this task ,surely avoiding a war could not have been this easy , and that was when he realized that he was not going to visit any gardens ,he has been a fool to let himself fall prey so easily ,but this realization seemed too late to come to him as he sees in front of him a pair of soldiers like Amad carrying their deadly blades and gets hit by someone on the head from behind which leaves him unconscious. 
 
 His hands and legs were tied and the hot sun was staring down at his head with its great extremity. He opens his eyes with difficulty due to the sun and sees Amad standing in front of him with a gun .\
-"Before I kill you , I would just like to say sorry for the cost of this war which is your head"\
+"Before I kill you , I would just like to say sorry for the cost of this war which is your head",says Amad in a tone of finality .\
 "Just get on with it already Amad ",says one of the soldiers from behind\
-Amad takes a good look on Hoshakh who was no longer feeling the sun in his eyes, had accepted his end and was ready to die proudly , knowing at the same time that his death was about to start a war which could leave everyone in this world with unforgettable turmoil.
+Amad takes a good look on Hoshakh who was no longer feeling the sun in his eyes, had accepted his end and was ready to die proudly , knowing at the same time that his death was about to start a war which could leave everyone in this world with unforgettable turmoil.\
+"Goodbye,The Great and Wise Hoshakh", says Amad and ends the life of the king of Orkhan's most trusting guide and his closest friend.
