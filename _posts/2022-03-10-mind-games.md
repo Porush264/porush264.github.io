@@ -17,7 +17,7 @@ And do not have a worry of what they give or take\
 In these games of politics which wrecks the brain
 
 They say one thing and act on another \
-Until they are left with a life of confusion and disorder\
+Until they are left with a life of chaos and confusion\
 Just to satisfy their pride and egoistic notions\
 And their mind does not have time to aimlessly wander\
 Wander in the deep sea of unknown and question\
