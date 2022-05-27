@@ -26,7 +26,7 @@ Flaura walks away and down the hill ,she had heard enough . She was thinking abo
 " you should have some respect for your husband, even if not for the king", said Arthaman \
 "He did not treat me like his wife when he left me here with my new born daughter just because of his self-doubts ,so why should I show any respect ",said Flaura, she felt the king was no longer the man she had once loved.\
 Do not be silly flo ,I know what the King did was  an upright brutal act and he will have me first to answer for his misdeed, but you did hear about the news of Hoshakh , it is not safe for us here any...\
-"Hoshakh ,it was him who they killed?", ,a wave of shock had suddenly hit flaura ,how could this happen ,her childhood friend had been murdered , the most witty and cunning person she had ever met .\
+"Hoshakh ,it was him who they killed?", a wave of shock had suddenly hit flaura ,how could this happen ,her childhood friend had been murdered , the most witty and cunning person she had ever met .\
 I am sorry flo "says arthaman apologetically as she sees flaura getting in deep upset thoughts .\
 "That is why we must leave , think of Sophia ,she needs protection at this time ,the enemy will not stop until they have found something to make our King vulnerable"\
 "And why do you feel the King will be able to protect my daughter if he could not protect Hoshakh "\
