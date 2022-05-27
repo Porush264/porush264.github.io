@@ -16,7 +16,7 @@ Not a worry or fright \
 When she passed away from somewhere\
 She was told she was heading nowhere \
 But she knew life came only once\
-And there was no heaven or hell for which she could worry
+And there was no heaven or hell for which she could be concerned
 
 Singing and dancing without a care \
 She struggled to make the ends meet \
