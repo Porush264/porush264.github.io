@@ -1,6 +1,6 @@
 ---
 title: The Cordane Battle
-date: 2022-05-29T07:44:44.632Z
+date: 2022-05-31T07:04:12.798Z
 categories:
   - Literature
   - Story
