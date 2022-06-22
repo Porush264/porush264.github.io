@@ -1,6 +1,12 @@
 ---
 title: "The Cordane Battle "
 date: 2022-06-22T08:38:11.433Z
+categories:
+  - Literature
+  - Story
+tags:
+  - Fiction
+  - Short-Story
 author:
   name: Porush Yadav
   link: https://github.com/porush264
