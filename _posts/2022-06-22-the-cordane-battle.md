@@ -21,4 +21,5 @@ Cancugt had only met the king once before , and at that moment he did not strike
 It is not them I am most upset with ,it is with you ,my king, you knew the danger of sending him ,then why ?"\
 "You know Hoshakh ,however wise he may be ,he is also sentimental, he wanted to meet her after the treaty ,I told him there was no use for it but he still insisted ."\
 Cancugt could understand this ,he was always the emotional one out of them both.\
-They had been walking all this time towards the entrance towards the palace
+They had been walking all this time towards the entrance towards the palace  every inch of it covered by pure gold. \
+Cancugt never liked the palace ,even in his childhood as his brother was busy becoming the closest person to the king in the same palace , he was away usually in the gardens . He never had any friends to play with ,just had his brother who was always too busy for him. There were times though when Flo used to visit them which were always good as they reminded him of his life before moving to Orkhan.
