@@ -11,6 +11,10 @@ author:
   name: Porush Yadav
   link: https://github.com/porush264
 ---
+
+<img src='https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fporush264.github.io%2Fposts%2F2022%2F04%2F24%2Fthe-cordane-battle%2F&count_bg=%2379C83D&title_bg=%23555555&icon=&icon_color=%23E7E7E7&title=hits&edge_flat=false' align=center><br>
+
+
 # 2.The Man With A Purpose
 
 The peaceful town of Tripkot, surrounded with green hills all around it with good-natured people and a sense of fellowship towards each other contained a dark secret ,a secret known to only the elders and royals that were still left in the town. King Tajot considered himself wise by choosing such a place to conceal his secrets .  Who could suspect such a peaceful town to contain something valuable to him.\

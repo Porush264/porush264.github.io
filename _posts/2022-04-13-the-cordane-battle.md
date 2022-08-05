@@ -10,6 +10,10 @@ author:
   name: Porush Yadav
   link: https://github.com/porush264
 ---
+
+<img src='https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fporush264.github.io%2Fposts%2F2022%2F04%2F13%2Fthe-cordane-battle%2F&count_bg=%2379C83D&title_bg=%23555555&icon=&icon_color=%23E7E7E7&title=hits&edge_flat=false' align=center><br>
+
+
 # 1.Some Things Cannot Be Undone
 
 He was feeling a lot of commotion, almost unbearable and was wondering what kind of route they were taking that was so disturbed. But the circumstances were such that he could not complain about it until he had reached the destination. The destination, kingdom of Mahqur, was to be protected at all costs by any outsider's eyes because they believed that anyone from outside will come with evil thoughts towards their precious kingdom. He had already practiced it several times, a short, precise and clear offering of peace ought to do the logical king's bidding to remove this misunderstanding.\
