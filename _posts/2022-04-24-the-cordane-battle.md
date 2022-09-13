@@ -13,7 +13,7 @@ author:
 ---
 <img src='https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fporush264.github.io%2Fposts%2F2022%2F04%2F24%2Fthe-cordane-battle%2F&count_bg=%2379C83D&title_bg=%23555555&icon=&icon_color=%23E7E7E7&title=hits&edge_flat=false' align=center><br>
 
-# 2.The Man With A Purpose
+# 2.The Hiding Place
 
 The peaceful town of Tripkot, surrounded with green hills all around it with good-natured people and a sense of fellowship towards each other contained a dark secret ,a secret known to only the elders and royals that were still left in the town. King Tajot considered himself wise by choosing such a place to conceal his secrets .  Who could suspect such a peaceful town to contain something valuable to him.\
 It was the only house in a lonely street in the town ,perhaps the house had been built there so that nobody would try to visit it frequently ,and although the people of Tripkot were not fully aware of who presided there ,they knew they were not to interfere in the process which was hidden from them. But all these facts could not bother Sophia and her little world, she frequently visited the town in spite of her mother's refusal ,her curiosity was too large to be pushed aside by the orders given by the King and supposedly ,her father. She hated her dad and for good reason too because it was his insecurities that were forcing them to live in this small town in hiding. Although his insecurities came from a reasonable place(this refers to the incident which happened to the King in his palace by one of his most trusted advisors who killed his newly born son leaving a distraught mother and an angry King behind),his actions could be seen by most people severe but were deemed necessary according to the king. \
