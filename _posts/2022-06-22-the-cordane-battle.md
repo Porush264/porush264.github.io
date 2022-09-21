@@ -33,9 +33,11 @@ All the officers came one by one to meet Horen and offer their condolences ;Barn
 "﻿Orelia,no princess ,you are family like Hoshakh was to us",said Orelia smiling.\
 H﻿oren could not resist those eyes, it was as if this was a persona she had made for the public.\
 "O﻿relia is very interested in Darkun city, I'm sure you will have a lot to share with her",said the King. \
-"P﻿erhaps we could take a walk if it is not a problem with you",said Orellia.\
-" He﻿ has completed a long journey ,would want to rest first I suppose ",said the king\
-"I﻿t is fine , I think company of someone would be better as the trip was very boring.",said Horen.\
-"﻿Oh good ,follow me ".\
-T﻿he market place of Orkhan was filled with crowds due to the upcoming festival of Jikshat\
-S﻿mall sculptures of the god Yokesh could be seen sold from all the shops , the festival of Jikshat was celebrated as his birthday celebration when he is known to sacrifice his own life in order to defeat the evil king Mahrat
+"P﻿erhaps we could take a walk if it is not a problem with you",says Orelia looking at Horen with a smile that meant something.\
+" He﻿ has completed a long journey ,would want to rest first I suppose ",intervened the King\
+I﻿t is fine , I think company of someone would do me better right now than sleep .",said Horen. \
+T﻿he market place of Orkhan was filled with crowds due to the upcoming festival of Jikshat.S﻿mall sculptures of the god Yokesh could be seen sold from all the shops , the festival of Jikshat was celebrated as his birthday celebration when he is known to sacrifice his own life in order to defeat the evil king Mahrat\
+"﻿Is the market always this crowded?",asked Horen out of curiosity \
+"﻿Not this much ,but yes, I would love to see Darkun's markets one day" said Orelia as she inspected a cloth from one of the shops.\
+"﻿Well , they're northing compared to this I can assure you "\
+S﻿he left the cloth and now looked at Horen completely , he could suspect she knew something and thought of just
