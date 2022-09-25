@@ -9,4 +9,9 @@ H﻿e could feel the bustling and the disruption that was interfering with the s
 "﻿Geez, I didn't mean to scare you , i'm Evan ",said the person extending his hand to shake.\
 "W﻿here am I? ",asked Nick \
 Y﻿ou are in a train as you could have judged from the interior ,said Evan waving around his hand to show his surroundings.\
-T﻿he train was western made with windows which had been intentionally covered from outside
+T﻿he train was western made with windows which had been intentionally covered from outside,seemed from a shutter. \
+"W﻿here is this train going?",asked Nick\
+E﻿van seemed confused by this statement,"you don't remember?we got loaded on it yesterday because they are taking us to that prison on some island. The island is supposed to be beautiful ,although the prison might be not an ideal place."\
+N﻿ick had no recollection of anything ,how he got here ,what did he do that they were taking him to prison ,he could not remember anything but then he saw Evan's face and had a hint of memory.\
+"﻿I know you, i have seen you before , who are you really?",asked Nick \
+"﻿It's me man . Evan .your brother",said Evan with a hint of obviousness.
