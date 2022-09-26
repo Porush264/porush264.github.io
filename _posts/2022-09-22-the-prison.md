@@ -12,6 +12,6 @@ Y﻿ou are in a train as you could have judged from the interior ,said Evan wavi
 T﻿he train was western made with windows which had been intentionally covered from outside,seemed from a shutter. \
 "W﻿here is this train going?",asked Nick\
 E﻿van seemed confused by this statement,"you don't remember?we got loaded on it yesterday because they are taking us to that prison on some island. The island is supposed to be beautiful ,although the prison might be not an ideal place."\
-N﻿ick had no recollection of anything ,how he got here ,what did he do that they were taking him to prison ,he could not remember anything but then he saw Evan's face and had a hint of memory.\
-"﻿I know you, i have seen you before , who are you really?",asked Nick \
-"﻿It's me man . Evan .your brother",said Evan with a hint of obviousness.
+N﻿ick had no recollection of anything ,how he got here ,what did he do that they were taking him to prison ,he could not remember anything.\
+H﻿e looked around ,the train was filled with people ,some standing on the weight of pole, some sitting on the gray benches which were fixed to the wall on both sides ,some were on the floor of the train in groups talking about something.But then he got an idea as to why that might be the case.\
+"Do you know if I was unconscious when they put me on this train?"
