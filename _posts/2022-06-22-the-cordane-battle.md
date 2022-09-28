@@ -40,4 +40,5 @@ T﻿he market place of Orkhan was filled with crowds due to the upcoming festiva
 "﻿Is the market always this crowded?",asked Horen out of curiosity \
 "﻿Not this much ,but yes, I would love to see Darkun's markets one day" said Orelia as she inspected a cloth from one of the shops.\
 "﻿Well , they're northing compared to this I can assure you "\
-S﻿he left the cloth and now looked at Horen completely , he could suspect she knew something and thought of just
+S﻿he put the cloth back in the stall and now looked at Horen completely , he could suspect she knew something and thought of just asking her directly .\
+"I﻿ know you are not here for your brother
