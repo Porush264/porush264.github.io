@@ -41,4 +41,10 @@ T﻿he market place of Orkhan was filled with crowds due to the upcoming festiva
 "﻿Not this much ,but yes, I would love to see Darkun's markets one day" said Orelia as she inspected a cloth from one of the shops.\
 "﻿Well , they're northing compared to this I can assure you "\
 S﻿he put the cloth back in the stall and now looked at Horen completely , he could suspect she knew something and thought of just asking her directly .\
-"I﻿ know you are not here for your brother
+"I﻿ know you are not here for your brother",remarked Orelia and ignoring the innocence smug look on Horen's face she went on,"I knew Hoshakh close enough so as to know if someone wrote to him , and not even once did he talked about you. It seemed like he did not have any brother ,would you like to share what happened that strained the relationship so much?"\
+H﻿oren was impressed by this , he did not expect someone to know about the nature of his relationship with Hoshakh.\
+I﻿t was a simple fight, he did not approve of my choice of settling in Darkun city, wanted me to enroll in PHOIL",lied Horen.\
+S﻿he was not convinced and was looking deeply at Horen as if to reach to the truth in his eyes.Finally when she gave up she asked him for the true reason of his coming here.\
+"﻿Believe it or not ,I am actually here for my brother , although our relationship was strained,he was still my brother and I would like to be there for his funeral",said Horen which was not completely untrue, he did intent on coming back anyways for something but his brother's death had made him prepone the arrangement .\
+T﻿hey kept talking and walking deep in the market and had now reached the roundabout with the Orkhan flag hoisted proudly in the center.\
+"﻿Do you know what it means,the star?",asked Orelia,looking up at the flag which consisted of a star with its light reaching the borders of the flag,making it look like as if the stars light was barely being contained by the flag.
