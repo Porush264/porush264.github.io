@@ -27,12 +27,10 @@ Coming back to Orkhan and seeing the place after such a long time made it all se
 They had now entered the main hall which was the seating place for the King and his officers .\
 "Let me introduce you to my officers ",says the king as they reached the center of hall where they all were discussing among each other .The hall was divided among the floor for the common people and the deck for the royalties. There were pathways behind the seat for every royalty leading to what could be assumed their personal rooms. All the seats were at equal space with each other except for one which was kept close to the kings', Heron did not need anybody to tell him who sat there.\
 All the officers came one by one to meet Horen and offer their condolences ; Barnacus , Philip, Mait and finally Princess Orelia. Barnacus told him that he was the closest to Hoshakh out of all the officers, they agreed on mostly all political decisions while the other two accepted that they did not always agreed with Hoshakh's  decision but still offered their deepest condolences. Then came the princess who started talking about Hoshakh very fondly ,but Horen kept getting the feeling that she was not telling the whole story. She was not the most beautiful Horen had seen but she had some unseeing quality which made her attractive to him.\
-"﻿I am deeply sorry for the loss of your brother, the pain is just as much great for me as it is for you",said Orelia ,although Horen found that hard to believe. \
-"﻿Thank you princess ",said Horen \
-"Call me ﻿Orelia, you are family like Hoshakh was to us",said Orelia smiling.\
-H﻿oren could not resist those eyes, it was as if this was a persona she had made for the public.\
+"﻿I am deeply sorry for the loss of your brother, the pain is just as much great for me as it is for you", said Orelia ,although Horen found that hard to believe. \
+"﻿Thank you princess ",said Horen. He could not resist those eyes, it was as if this was a persona she had made for the public.\
 "O﻿relia is very interested in Darkun city, I'm sure you will have a lot to share with her",said the King. \
-"P﻿erhaps we could take a walk if it is not a problem with you",says Orelia looking at Horen with a smile that meant something.\
+"P﻿erhaps we could take a walk if it is not a problem with you", says Orelia looking at Horen with a smile that meant something.\
 "He﻿ has completed a long journey ,would want to rest first I suppose ",intervened the King\
 I﻿t is fine , I think company of someone would do me better right now than sleep .",said Horen. \
 T﻿he market place of Orkhan was filled with crowds due to the upcoming festival of Jikshat.S﻿mall sculptures of the god Yokesh could be seen sold from all the shops , the festival of Jikshat was celebrated as his birthday celebration when he is known to sacrifice his own life in order to defeat the evil king Mahrat\
@@ -65,4 +63,5 @@ A﻿t this point a smile came over Horen's face which he could not remove before
 "﻿ Well, those some people belong somewhere else than Orkhan if you ask me, but what do you think?", asked Orelia looking intensely at Horen giving him the feeling that he was free to give his opinion but was necessary that it matches with the answer she had in mind.\
 H﻿oren looked at her for a moment and smiled, "I think both men stood up for their own opinions which shows the courage and bravery that resides in Orkhans.\
 O﻿relia smiled again and replied," sharp as it could have been. "\
-T﻿hey continued strolling around the institute, seeing children with books and some running around with balls in their feet with some of them recognizing Orelia and staring in surprise. One adolescent even came to talk about how she wants to become just like her for which Orelia replied "believe me, you do not ", to which the girl felt confused as how to respond."
+T﻿hey continued strolling around the institute, seeing children with books and some running around with balls in their feet with some of them recognizing Orelia and staring in surprise. One adolescent even came to talk about how she wants to become just like her for which Orelia replied "believe me, you do not ", to which the girl felt confused as how to respond."\
+H﻿oren felt a little confused , some deep obsession which had turned her life from a lavish and peaceful one of a princess to something dark was hiding behind her eyes.
