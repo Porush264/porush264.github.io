@@ -24,7 +24,7 @@ To make a donation for the children\
 Who were left there alone without any second thought\
 But when accidentally he had stepped on\
 The egoistic child's toys\
-In the eyes of that little guy \
+In the eyes of that little girl\
 He was now sworn enemy till the end of time
 
 And so the child hired a woman to do the crime\
