@@ -3,7 +3,7 @@ title: The Beatles
 date: 2022-03-18T16:16:06.620Z
 categories:
   - Art
-  - Portrait+Painting
+  - Portrait Painting
 tags:
   - Musician
   - Inspiration

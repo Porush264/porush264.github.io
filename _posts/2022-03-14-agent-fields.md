@@ -3,7 +3,7 @@ title: Agent Fields
 date: 2022-03-14T09:48:44.904Z
 categories:
   - Art
-  - portrait+painting
+  - Portrait Painting
 tags:
   - Fiction
 author:

@@ -3,7 +3,7 @@ title: Agent Kane
 date: 2022-03-14T10:13:34.594Z
 categories:
   - Art
-  - Portrait+Painting
+  - Portrait Painting
 tags:
   - Fiction
 author:
