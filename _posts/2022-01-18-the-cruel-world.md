@@ -9,9 +9,6 @@ tags:
   - Depression
 ---
 
-<img src='https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fporush264.github.io%2Fposts%2F2022%2F01%2F18%2Fthe-cruel-world%2F&count_bg=%2379C83D&title_bg=%23555555&icon=&icon_color=%23E7E7E7&title=hits&edge_flat=false' align=center><br>
-
-
 I used to lay in my bed and dream the impossible\
 But now I don't have time to delay the inevitable\
 As I face the struggles associated with reality\

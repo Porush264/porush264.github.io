@@ -7,6 +7,7 @@ categories:
 tags:
   - Fiction
 ---
+
 # 3.The One Remaining
 
 He was almost there ,the place where he had spent his childhood and now where he would have to mourn for his brother's death. He still could not believe it ,his brother -the one who they said could escape death even if it was staring him face on. Perhaps this was all a way of Hoshakh's to call him back ,back to the kingdom because he would have known, any other way would not work in the circumstances. The cart suddenly came to a stop ,it seemed like they had have reached their destination, the kingdom of Orkhan ,majestic and mysterious with its big palace and their uncountable streets .Horen looked out of the drapes ,there seemed to be a number of soldiers with their own carts standing, some on his side and some facing him , He could see the people were clearing up a way for someone who was supposed to walk up to Horen .At this point he came out of his own cart and started walking up to the way .He could see him ,draped with jewelry and carrying the biggest sword he had ever seen in his life with soldiers surrounding his back .They met halfway ,the king was bold yet humble in every way ,his eyes showed hidden kindness and a hint of pain and anger probably related to the recent incident. Horen incidentally felt small while standing in his fearful presence although the king had not done anything to give that impression .He started to bow to the king addressing him but before he could he was picked up by the king halfway.\

@@ -9,9 +9,6 @@ tags:
   - Introspective
 ---
 
-<img src='https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fporush264.github.io%2Fposts%2F2022%2F01%2F20%2Fescaping-from-reality%2F&count_bg=%2379C83D&title_bg=%23555555&icon=&icon_color=%23E7E7E7&title=hits&edge_flat=false' align=center><br>
-
-
 # **1. A Deep Sleep**
 
 All alone sitting in the emptiness, feeling it. He was lying there thinking 'What has it all come to'?, he saw no purpose in living, no purpose in carrying on, no purpose in putting a happy face, if all of it was just fake. He felt like a fish, swimming in the meaningless sea with no reason to live on .All the while he felt tired and wanted to put the day at end by a deep sleep but knew the harsh reality would not come to an end unless it was a permanent end to his own life. But still he thought to give one last chance to sleep before coming to the end of the road with his life. Tired and wishing that his sleep turns into a permanent one ,he dozed off.\

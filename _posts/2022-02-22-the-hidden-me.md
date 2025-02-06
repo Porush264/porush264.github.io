@@ -8,9 +8,6 @@ tags:
   - Rhyming
 ---
 
-<img src='https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fporush264.github.io%2Fposts%2F2022%2F02%2F22%2Fthe-hidden-me%2F&count_bg=%2379C83D&title_bg=%23555555&icon=&icon_color=%23E7E7E7&title=hits&edge_flat=false' align=center><br>
-
-
 Once there was a man taller than me\
 And I was jealous of the places he had seen\
 He had seen everything that the world could present\
