@@ -6,9 +6,6 @@ categories:
   - Story
 tags:
   - Fiction
-author:
-  name: Porush Yadav
-  link: https://github.com/porush264
 ---
 # 3.The One Remaining
 

@@ -7,9 +7,6 @@ categories:
 tags:
   - Fiction
   - Rhyming
-author:
-  name: Porush Yadav
-  link: https://github.com/porush264
 ---
 T﻿here were cries of the cordane battle heard in every land \
 B﻿lood spilled,famillies killed,\
