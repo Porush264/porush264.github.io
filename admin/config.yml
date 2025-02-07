@@ -1,13 +1,13 @@
 backend:
-  name: github
+  name: gitlab
   branch: main # Branch to update (optional; defaults to master)
-  repo: Porush264/Porush264.github.io
-  site_domain: adoring-bassi-ec77fb.netlify.app
+  repo: Porush264/blog
+  auth_type: pkce
+  app_id: 001e8c5bbcbd77ece4d6957905141455cbe983885cdf618b05118a5e3447e554
 
 media_folder: 'assets/img'
 publish_mode: editorial_workflow
-site_url: https://porush264.github.io/
-logo_url: https://porush264.github.io/assets/img/favicons/favicon.ico
+site_url: https://porush.pages.dev/
 
 collections:
   - name: 'blog'
