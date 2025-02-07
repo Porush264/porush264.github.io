@@ -1,0 +1,21 @@
+backend:
+  name: github
+  branch: main # Branch to update (optional; defaults to master)
+  repo: Porush264/Porush264.github.io
+  site_domain: adoring-bassi-ec77fb.netlify.app
+
+media_folder: 'assets/img'
+publish_mode: editorial_workflow
+site_url: https://porush264.github.io/
+logo_url: https://porush264.github.io/assets/img/favicons/favicon.ico
+
+collections:
+  - name: 'blog'
+    label: 'Blog'
+    folder: '_posts/'
+    fields:
+      - { name: Title }
+      - { label: "Publish Date", name: "date", widget: "datetime" }
+      - { label: "Categories", name: "categories", widget: "list" }
+      - { label: "Tags", name: "tags", widget: "list" }
+      - { label: "Body", name: "body", widget: "markdown" }
